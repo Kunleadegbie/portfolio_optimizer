@@ -80,7 +80,7 @@ Contributions, suggestions, and feedback are highly welcome! Open a pull request
 ## 📞 Connect
 
 Made by **\[Adekunle Adegbie]**
-🔗 [LinkedIn](#) | 📧 [kadegbie@gmail.com](#)
+🔗 [www.linkedin.com/in/adekunle-adegbie-phd-mba-fcs-fica-hcib-61b6338b ](#) | 📧 [kadegbie@gmail.com](#)
 
 
 
